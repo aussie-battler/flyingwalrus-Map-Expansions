@@ -2,7 +2,7 @@
 flyingwalrus' Map Expansions - Kavala City Ruins, Therisa Riverlands &amp; Altis Desert 
 
 
-This composition for Altis was made by flyingwalrus. 
+This composition for Altis was made by flyingwalrus. Thanks to flyingwalrus for sharing this huge work.
 
 Check out the compositions here:
 
